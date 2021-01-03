@@ -1,2 +1,1 @@
-# must-have-applications
-My Must Have Essential Applications List
+# My Must Have Essential Applications List
